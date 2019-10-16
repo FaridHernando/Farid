@@ -1,0 +1,2 @@
+# Farid
+masalah awal kesuksesan
